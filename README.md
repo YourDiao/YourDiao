@@ -1,8 +1,8 @@
 # 01 “不支持网暴”的双标貂
 
-​	<font size=4>因为最近有某位模特在直播间以及小红书帖子中恶意抹黑本人、并且大肆传播伪证，所以忍无可忍才出来回应。首先我想请问，你现在也把我的账号挂出来了，**口口声声说“不支持网暴”**，但被你欺骗了的网友都来我评论区团建了，<font color=red>**你现在的所作所为不就是在对我进行网络暴力吗？**</font></font>
+​ 	<font size=4>因为最近有某位模特在直播间以及小红书帖子中恶意抹黑本人、并且大肆传播伪证，所以忍无可忍才出来回应。首先我想请问，你现在也把我的账号挂出来了，**口口声声说“不支持网暴”**，但被你欺骗了的网友都来我评论区团建了，<font color=red>**你现在的所作所为不就是在对我进行网络暴力吗？**</font></font>
 
-<div align=center><img src="D:\zm\1-1.jpg" width="60%" height="60%"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/1-1.jpg"></div>
 
 ​	<font size=4>并且除了小红书发的两条帖子，**我从未在任何其他平台投过稿**，随便你找网警查都行。**我问心无愧**。</font>
 
@@ -14,7 +14,7 @@
 
 ​	<font size=4>我还帮你**拍视频**，**写文案**，**拍照片**，**化妆**，你**当时最火的那几条视频全都是我拍的**，你请我吃**两顿饭**就算是真的把我当朋友了？如果我真的只是个陌生摄影师，你请我吃的那**两顿饭**还不够半天的拍摄费。还有你每次吃饭都必须蛐蛐你的前任，说到前任就没完没了，一直在**抹黑造谣消费你的前任们**，前天晚上也在直播间消费前任，请问她们是不是和饼饼一样，都是你**博取流量的工具**呢？</font>
 
-<div align=center><img src="D:\zm\2-1.jpg" width="70%" height="70%"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/2-1.jpg"></div>
 
 # 03 貂的人还没走出来，但手已经走出来了
 
@@ -22,46 +22,38 @@
 
 ​	<font size=4>和饼饼分手不久，你就开始在小红书发布以下内容，如果你觉得你发这种照片和文案，都不是暧昧，也不是没有边界感的话，那你凭什么拿这个来攻击我呢？**图片上贴贴、文案上擦边、还打le标签**，你是想说这都是很有边界感的事情吗？</font>
 
-<div align=center><img src="D:\zm\3-1.jpg" width="70%" height="70%"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/3-1.jpg"></div>
 
 ​	<font size=4>以及你在4月17号就回复粉丝评论，说**你谈了**，无论是否开玩笑，这也都是**很没有边界感**的行为。你身为一个已经和饼饼分手三个月的人，对她占有欲那么强的同时，还不忘和别的女生<font color=red>**疯狂地麦咭**</font>，**你指责我的立场是什么？你是想营造什么人设呢？**</font>
 
-<center class="half">
-<img src="D:\zm\3-2.jpg" width=45%/>
-<img src="D:\zm\3-3.jpg" width=45%/>
-</center>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/3-2.jpg"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/3-3.jpg"></div>
 
 
 # 04 你是不是觉得这个互联网特别大，觉得这个小红书特别空，你好像用尽了力气都不知道怎么能让大家记住你，看到你
 
 ​	<font size=4>说到引流，你现在的行为才是在引流吧？你每天在这早上直播中午直播晚上直播半夜直播，翻来覆去讲的就是那些**伪证**，还拿你和饼饼的合照做封面，甚至没东西聊之后，还在直播间公然**消费你的各位前任**，你这样的行为到底是在举证、还是**想通过这件事火**？毕竟你字里行间翻来覆去讲的都是“饼饼分手之后涨粉几万”，酸味儿都要从屏幕里溢出来咯~</font>
 
-<div align=center><img src="D:\zm\4-1.jpg" width="55%"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/4-1.jpg"></div>
 
-<center class="half">
-<img src="D:\zm\4-4.jpg" width=35%/>
-<img src="D:\zm\4-5.jpg" width=30%/>
-</center>
-
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/4-4.jpg"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/4-5.jpg"></div>
 
 # 05 草木皆青，貂竟是小青深柜！
 
 ​	<font size=4>**“怎么哭都不认真”不是我发的**，你真的很爱给人造谣。</font>
 
-<div align=center><img src="D:\zm\5-1.jpg" width="50%" height="50%"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/5-1.jpg"></div>
 
 ​	<font size=4>说到造谣，你这也不是第一次造我的谣了。不知道是谁替你投稿的，反正我只能说你找的这个代写，文笔也太差了，**能不能不要写得这么咯噔啊**，就算假装我，能不能也找个水平好点的人来啊。并且在表白墙**发布不到三小时**，就有人来我评论区发这张图，要不是“好心路人”提醒，我还不知道我和饼饼穿的是同款鞋子呢~**谢谢您给我38块钱的淘宝洞洞鞋升咖**。</font>
 
-<center class="half">
-<img src="D:\zm\5-2.jpg" width=40%/>
-<img src="D:\zm\5-5.jpg" width=40%/>
-</center>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/5-2.jpg"></div>
 
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/5-5.jpg"></div>
 
-<center class="half">
-<img src="D:\zm\5-3.jpg" width=40%/>
-<img src="D:\zm\5-4.jpg" width=40%/>
-</center>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/5-3.jpg"></div>
+
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/5-4.jpg"></div>
 
 
 # 06 万物起源竟是素人，请停止受害者有罪论
@@ -70,10 +62,8 @@
 
 ​	<font size=4>于是你开始**混淆视听**，从一开始道歉声明的**”她在我发布之后才知情“**到现在用朋友圈互动来洗，**试图伪证饼“对你在所有平台发的照片都知情”**。你**在没有得到饼的同意之前发布照片**就是你的问题，怎么现在还敢洗？<font color=red>**你逻辑不清，说不过我，难道不就是因为你说的话和做的事完全是矛盾的吗？**</font></font>
 
-<center class="half">
-<img src="D:\zm\6-1.jpg" width=45%/>
-<img src="D:\zm\6-2.jpg" width=45%/>
-</center>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/6-1.jpg"></div>
+<div align=center><img src="https://github.com/YourDiao/YourDiao/blob/main/6-2.jpg"></div>
 
 
 # 结语
